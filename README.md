@@ -9,7 +9,7 @@
   
     **LinkedIn:** https://www.linkedin.com/in/vinathi-bellam-3a5274257/
   
-    **Email:** vinathi 1234@gmail.com
+    **Email:** vinathi1234@gmail.com
 - 😄 Pronouns: She/Her  
 - ⚡ Fun fact: BookWorm and Love morning jogs
 
