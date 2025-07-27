@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Vinathi (@vinathi01)
 - 👀 I’m interested in Cybersecurity 🔒 
-- 🌱 I’m currently learning how to learn 
+- 🌱 I’m currently learning the way of life
 - 💞️ I’m looking to collaborate on :
     -   Open-source security tools 🔧  
     -   Web application security projects 🔍  
